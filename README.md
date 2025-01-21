@@ -35,7 +35,7 @@ We may update this policy periodically. Changes will be posted on this page with
 ## 7. Contact Us
 If you have questions about this Privacy Policy, contact us at:
 - **Email:** ankur.katiyar@gmail.com
-- **Phone:** 488-27-ANKUR02
+- **Phone:** +1-424-265-8702
 
 ---
 
